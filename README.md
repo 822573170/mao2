@@ -30,8 +30,11 @@ miwu花姬
 黄瓜系统）（筹备上线中）
 
 
-http:
+因 Q群  功能  异常     如果喜欢奶猫 又怕 走丢的小伙伴   可以了解一下  potato软件
 
+我的potato 万人群 中转地址：
+
+https://lynnconway.me/papayy
 
  
 
