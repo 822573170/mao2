@@ -12,7 +12,7 @@ http://www.yishupifabu.com/?channelCode=LND7ER
 
 http://3un8.com/2522056 
 
-http://4pgb.com/2522056 
+http://7m2s.com/2522056 
 
 https://lk2u.com/2304023
 
@@ -20,7 +20,6 @@ https://lk2u.com/2304023
 
 迷狐      打不开的多试一次
 
-http://danvri.cn/0fars4
 
  
 miwu花姬
