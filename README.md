@@ -6,7 +6,7 @@
 晚上九点之后.....你懂的）
 
 
-https://jiali1.tv?agent=68069
+http://68069.xyz
 
 
 
